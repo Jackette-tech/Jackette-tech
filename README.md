@@ -6,8 +6,8 @@ I have a passion for video games and hope to go in the game developement industr
 
 |￣￣￣￣￣￣￣|                                                                                            
 |　 MilK　　　|                                                                                            
-|  Before　　|                                                                                            
-|  Cereal　　|                                                                                            
+|  Before　　    |                                                                                            
+|  Cereal　　      |                                                                                            
 |＿＿＿＿＿＿＿|                                                                                            
 (\__/) ||                                                                                                 
 (•ㅅ•) ||                                                                                                                                    
